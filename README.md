@@ -1,4 +1,3 @@
-# Telegram Torrent Leecher 🔥🤖
 
 ```
 TESTED REPO WORKING FINE FOR ME ABUSE=BAN ON Her*ku...
